@@ -1,2 +1,0 @@
-# sitesolo
-So brincadeira
